@@ -1,16 +1,16 @@
-### Hi there 👋
+### Hi there 
 
-<!--
-**Bradleyraza/Bradleyraza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hi my name is Bradley, I'm one of the student at SAYNA, It's a digital school to learn about all digital jobswith a good family spirits and a game way.
+Bradleyraza
+I'm interested in digital especially on marketing digital
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm looking to collaborate on many projects to see all of the methodology and how digital impact around the world
+- 🌱 I’m currently learning marketing digital
+  
+  
+
+- 📫 How to reach me on likedin: Bradley Razakamahefa
+
+
+-->It's a pleasure to work with one of you.
